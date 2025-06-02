@@ -1,2 +1,2 @@
 
-Alex hat alle perks verloren aminacakdim
+Alex hat alle perks verloren aminacakdim nigger
